@@ -2,4 +2,4 @@
 
 ### **Integrantes:**
 
-> Maria Florencia Molina| Teo Argañaraz Sarmiento 
+> Ana Legaspi | Maria Florencia Molina | Teo Argañaraz Sarmiento  
